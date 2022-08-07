@@ -1,1 +1,1 @@
-# -Future-Ready-Talent
+# Future-Ready-Talent
